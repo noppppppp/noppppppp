@@ -1,1 +1,1 @@
-![Ma bannière](IMG_5629.png)
+![Ma bannière](IMG_5629.jpg)
